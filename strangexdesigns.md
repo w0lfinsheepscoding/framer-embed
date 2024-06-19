@@ -1,1 +1,0 @@
-# Strange x Designs
